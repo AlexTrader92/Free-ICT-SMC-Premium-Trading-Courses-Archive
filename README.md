@@ -11,7 +11,7 @@ Stop paying retail prices for institutional knowledge. This repository contains 
 ### 🔓 Access The Archive Now
 We host the full 25,000+ files archive on our secure, private channel to avoid takedowns. 
 
-👉 **[CLICK HERE TO ENTER THE https://t.me/+g0BMdl7wLdE1Nzg1 FREE TELEGRAM VAULT](https://t.me/+v1BOi_dEDqtiYjc1)**
+👉 **[CLICK HERE TO ENTER THE FREE TELEGRAM VAULT](https://t.me/+g0BMdl7wLdE1Nzg1)**
 
 ---
 
