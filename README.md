@@ -8,7 +8,7 @@ Stop paying retail prices for institutional knowledge. This repository contains 
 * **Prop-Firm Passing Blueprints**
 * **Up to 99% OFF Original Retail Prices**
 
-### 🔓 Access The Archive Now
+### 🔓 Access The Archive No w
 We host the full 25,000+ files archive on our secure, private channel to avoid takedowns. 
 
 👉 **[CLICK HERE TO ENTER THE FREE TELEGRAM VAULT](https://t.me/+g0BMdl7wLdE1Nzg1)**
